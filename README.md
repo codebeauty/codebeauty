@@ -3,6 +3,9 @@
 ### 💊 Pills full of ideas
 
 - 🐘 Boost me on [Mastodon](https://mastodon.social/@designerdrug)
-- 🐥 Follow me on [Twitter](https://twitter.com/designerdrug) as long Mr. Musk not turn off the lights.
+- 🐥 Follow me on [Twitter](https://twitter.com/designerdrug) until Mr Musk turns off the lights
+
+- 🟦 Let's connect on [LinkedIn](https://www.linkedin.com/in/mathiasbachmann/)
+
 
 `All with ♥ from Hamburg, Germany` 
