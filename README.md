@@ -2,8 +2,7 @@
 
 ### 💊 Pills full of ideas
 
-- 🐘 Boost me on [Mastodon](https://mastodon.social/@designerdrug)
-- 🐥 Follow me on [x](https://x.com/designerdrug) until Mr Musk turns off the lights
+- 🐥 Follow me on [Bluesky]([https://x.com/designerdrug](https://bsky.app/profile/designerdrug.net)) 
 
 - 🟦 Let's connect on [LinkedIn](https://www.linkedin.com/in/mathiasbachmann/)
 
