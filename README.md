@@ -2,7 +2,7 @@
 
 ### 💊 Pills full of ideas
 
-- 🐥 Follow me on [Bluesky]([https://x.com/designerdrug](https://bsky.app/profile/designerdrug.net)) 
+- 🐥 Follow me on [Bluesky](https://bsky.app/profile/designerdrug.net)
 
 - 🟦 Let's connect on [LinkedIn](https://www.linkedin.com/in/mathiasbachmann/)
 
